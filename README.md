@@ -1,1 +1,1 @@
-Erster Draft vom „Brüllwürfel“
+Erster Draft des „Brüllwürfels“
